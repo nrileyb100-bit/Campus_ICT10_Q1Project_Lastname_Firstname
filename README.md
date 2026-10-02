@@ -1,1 +1,1 @@
-# Campus_ICT10_Q1Project_Lastname_Firstname
+# LasPinas_ICT10_Q1Project_Bernaldez_Nathan
